@@ -2,8 +2,7 @@
 - 👀 I’m interested in learning 
 - 🌱 I’m currently learning python...
 - 💞️ I’m looking to collaborate onn...... anything??
-- 📫 How to reach me, only by call, don't use any social media.
-- 😄 Pronouns: what are they??
+- 📫 How to reach me, only by call, any social media.
 - ⚡ Fun fact: As people acquire more information and delve deeper into a subject, they often become more aware of the vastness of knowledge and the complexities of the world.
 
 <!---
